@@ -15,7 +15,7 @@ I'm keen on dancing and listening to music. My favourite musicians are:
 * Sam Smith
 * Miley Cyrus 
 * Kanye West
-* MATRANG***
+* MATRANG
 
 ***I enjoy reading. "Les miserables" by Victor Hugo is my most-liked book.***
 
