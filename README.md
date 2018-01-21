@@ -21,11 +21,11 @@ I'm keen on dancing and listening to music. My favourite musicians are:***
 
 ***I'm quite easy-going person.***
 
-***Can't imagine my life without friends and food. Cakes and chokolates are the best food for me. However, I'm trying to start eating healthily.***
+***Can't imagine my life without friends and food. Cakes and chocolates are the best food for me. However, I'm trying to start eating healthily.***
 
 ***I go to fitness club which is called "X-Fit". It's amazing. I go to gym 3-4 times a week. I wish I could train more but (unfortenutally) I have to do a lot of homework.***
 
-Here you can see the table of my trainings.***
+***Here you can see the table of my trainings.***
 
 |   Monday   |    Tuesday   |    Wednesday   |   Thursday   |      Friday      |    Saturday   |     Sunday     |
 |------------|--------------|----------------|--------------|------------------|---------------|----------------|
