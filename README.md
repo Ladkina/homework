@@ -8,18 +8,17 @@ inst: [https://www.instagram.com/ladkina/]
 
 ***Hello! My name is Dasha, I'm 17 y.o. I'm from Magnitogorsk. But now I live in Moscow. 
 I'm keen on dancing and listening to music. My favourite musicians are:***
-**** Eminem
+* Eminem
 * Rihanna
 * Kendrick Lamar
 * Frank Ocean
 * Sam Smith
 * Miley Cyrus 
 * Kanye West
-* MATRANG***
+* MATRANG
 
-***I enjoy reading. "Les miserables" by Victor Hugo is my most-liked book.***
-
-***I'm quite easy-going person. Can't imagine my life without friends and food. Cakes and chokolates are the best food for me. However, I'm trying to start eating healthily.
+***I enjoy reading. "Les miserables" by Victor Hugo is my most-liked book. 
+I'm quite easy-going person. Can't imagine my life without friends and food. Cakes and chokolates are the best food for me. However, I'm trying to start eating healthily.
 I go to fitness club which is called "X-Fit". It's amazing. I go to gym 3-4 times a week. I wish I could train more but (unfortenutally) I have to do a lot of homework.
 Here you can see the table of my trainings.***
 
